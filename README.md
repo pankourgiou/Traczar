@@ -1,0 +1,1 @@
+download the .html and double click it and observe Traczar living on the mountain village keeping notes on many things..it s an always changing never really ending game.It is a real life scenario with a sense of humour..enjoy!
